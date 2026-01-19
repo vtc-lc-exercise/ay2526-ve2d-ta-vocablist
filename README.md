@@ -1,0 +1,1 @@
+# ay2526-ve2d-ta-vocablist
